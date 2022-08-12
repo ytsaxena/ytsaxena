@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ytsaxena
 - 🌱 I’m currently learning Android Development
-- 💞️ I’m looking to Android Developer Internships & Part time Work
+- 💞️ I’m looking to Android Developer Full Time Role (Hybrid Work)
 - 📫 Contact : sssaxena058@gmail.com
 
 
